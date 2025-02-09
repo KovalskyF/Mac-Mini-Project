@@ -26,8 +26,8 @@ Mac mini specification and price
 <br>
 ## WD Elements Desktop
 **External Drive, 4 TB, USB 3.2 1. gen connection**<br>
-*3 699 Kč*<br>
 [Alza.cz](https://www.alza.cz/wd-elements-desktop-4tb-d1480690.htm)<br>
+*3 699 Kč*<br>
 <br>
 <br>
 <br>
